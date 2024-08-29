@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @fahimanime
+- 👀 I’m interested in girls
+- 🌱 I’m currently learning cooking
+- 💞️ I’m looking to collaborate on arts.
+- 📫 How to reach me: Die
+- 😄 Pronouns: He
+- ⚡ Fun fact: I am an artist
