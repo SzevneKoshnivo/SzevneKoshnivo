@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @fahimanime
+- 👋 Hi, I’m @SzevneKoshnivo
 - 👀 I’m interested in girls
 - 🌱 I’m currently learning cooking
 - 💞️ I’m looking to collaborate on arts.
